@@ -1,4 +1,4 @@
-# eggshell-media
+# Eggshell Media Technologies LLC
 
 ## About Us
 
